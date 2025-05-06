@@ -1,2 +1,2 @@
 # Atividade-Wuldson
-Atividade em dupla
+Atividade em dupla - Gabriele Gonçalves e Alyere Targino
